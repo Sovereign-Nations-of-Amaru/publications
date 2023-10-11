@@ -86,4 +86,3 @@ By exploring our shared histories, we can honor the resilience and strength of A
 
 This journey is an opportunity to connect with the cultural heritage that has shaped us and to appreciate the diverse and interconnected narratives that make our world rich and multifaceted. The recognition of our shared heritage is a celebration of the past, present, and future.
 
-**Word Count: 3041**
